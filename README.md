@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Patrocchione03;
 - 👀 I’m interested in programming;
-- 🌱 I’m currently learning computer science;
+- 🌱 I finished my studies as a computer technician;
 - 💞️ I’m looking to collaborate on discord;
 - 📫 Crypto mining: https://app.stormgain.com/friend/BNS68791973 .
 
